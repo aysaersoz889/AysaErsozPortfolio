@@ -16,11 +16,11 @@ Open Education Faculty
 ### ENT Dergi Magazine - Culture & Arts Editor
 - Edited 43 articles for arts and cultures section.
 ### ENT Dergi Magazine – Translator
-- Translated 2 articles in History and Political News topics.
+Translated 2 articles in History and Political News topics.
 Selected articles with hyperlinks to the article:
 - “US election 2020: All you need to know about the presidential race” [link](https://entdergi.com/2020-amerika-secimleri-baskanlik-yarisi-hakkinda-bilmeniz-gereken-her-sey/)
-- “How Pandemics Change History” (Translated from: The New Yorker)
-AIESEC – Local volunteer
+- “How Pandemics Change History” (Translated from: The New Yorker) [link](https://entdergi.com/pandemiler-tarihi-nasil-degistirir/)
+### AIESEC – Local Volunteer
 - Local Volunteer for Step Up 3rd Wave Project -
 (Translated from: BBC)
   Role Description: We reached out to children between ages 6-15 to improve their perspective on culture, language, opinion,
