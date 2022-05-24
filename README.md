@@ -1,27 +1,24 @@
 # AYSA ERSÖZ       aysaersoz@gmail.com
 ## EDUCATION
-### Ege University      _Izmir,Turkey_
+### Ege University      _(Izmir,Turkey)_
 ### Faculty of Economics and Administrative Sciences
-axis of US-China According to the Perspective of Political-Economy” - 70% of the passed courses were in English
+- Department of International Relations (Bachelor of Arts)
+- Thesis: “Iran's Foreign Policy After the Revolution in the Middle East Depending on Its Effects on Iran's Relations with theaxis of US-China According to the Perspective of Political-Economy” - 70% of the passed courses were in English
 - GPA: 3.35/4.0
 - Graduated with Honor Certificate
-Anadolu University, Turkey
+## Anadolu University _(Eskisehir,Turkey)_
 Open Education Faculty
 - International Trade and Logistics Management (Associate Degree)
-EXPERIENCES AND WORKS
-Clinic Center- International Patient Relations Specialist
-Sept. 2017- present
- Oct. 2021-Nov. 2021
+## EXPERIENCES AND WORKS
+### Clinic Center - International Patient Relations Specialist
 - Clinic Center is an establishment of Ada Saglik Seyahat Saglik Turizmi ve Danismanligi Ltd. Sti. It is a Health Tourism Company.
-- Job Description: I managed the communication processes between the patient and the doctor. ENT Dergi Magazine – Culture & Arts Editor
-Nov. 2019 – Nov. 2020 Nov. 2019 – present
-July 2019 – Aug. 2020
-Sept 2019 – Jan. 2020
+- Job Description: I managed the communication processes between the patient and the doctor. 
+### ENT Dergi Magazine - Culture & Arts Editor
 - Edited 43 articles for arts and cultures section.
-ENT Dergi Magazine – Translator
-- Translated 2 articles in the History and Political News topics.
-- Selected articles with hyperlinks to the article:
-- “US election 2020: All you need to know about the presidential race”
+### ENT Dergi Magazine – Translator
+- Translated 2 articles in History and Political News topics.
+Selected articles with hyperlinks to the article:
+- “US election 2020: All you need to know about the presidential race” [link](https://entdergi.com/2020-amerika-secimleri-baskanlik-yarisi-hakkinda-bilmeniz-gereken-her-sey/)
 - “How Pandemics Change History” (Translated from: The New Yorker)
 AIESEC – Local volunteer
 - Local Volunteer for Step Up 3rd Wave Project -
