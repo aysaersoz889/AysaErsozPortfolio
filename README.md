@@ -1,3 +1,73 @@
-# AysaErsöz Portfolio
-## ENT Dergi Magazine
-
+# AYSA ERSÖZ       aysaersoz@gmail.com
+## EDUCATION
+### Ege University      _Izmir,Turkey_
+### Faculty of Economics and Administrative Sciences
+axis of US-China According to the Perspective of Political-Economy” - 70% of the passed courses were in English
+- GPA: 3.35/4.0
+- Graduated with Honor Certificate
+Anadolu University, Turkey
+Open Education Faculty
+- International Trade and Logistics Management (Associate Degree)
+EXPERIENCES AND WORKS
+Clinic Center- International Patient Relations Specialist
+Sept. 2017- present
+ Oct. 2021-Nov. 2021
+- Clinic Center is an establishment of Ada Saglik Seyahat Saglik Turizmi ve Danismanligi Ltd. Sti. It is a Health Tourism Company.
+- Job Description: I managed the communication processes between the patient and the doctor. ENT Dergi Magazine – Culture & Arts Editor
+Nov. 2019 – Nov. 2020 Nov. 2019 – present
+July 2019 – Aug. 2020
+Sept 2019 – Jan. 2020
+- Edited 43 articles for arts and cultures section.
+ENT Dergi Magazine – Translator
+- Translated 2 articles in the History and Political News topics.
+- Selected articles with hyperlinks to the article:
+- “US election 2020: All you need to know about the presidential race”
+- “How Pandemics Change History” (Translated from: The New Yorker)
+AIESEC – Local volunteer
+- Local Volunteer for Step Up 3rd Wave Project -
+(Translated from: BBC)
+  Role Description: We reached out to children between ages 6-15 to improve their perspective on culture, language, opinion,
+ lifestyle, religion, sexual orientation, race, and gender equality.
+ - Was responsible for attending project everyday
+- Was responsible for managing a group of people to develop content of the activities
+AIESEC - Incoming Global Volunteer Team Member
+- -
+In a team project, created projects in Izmir so that young people from all over the world could come and see Turkey and make
+ a difference here.
+ Managed, negotiated, and collaborated with potential partners to facilitate the visit of young people to Turkey.
+ Aysa Ersöz
+Translator
+- KEBIKEC, Resources for Human Sciences Research Journal: Translated a copy of Akhtar Newspaper (A Persian Language Newspaper Published in Istanbul during the Ottoman Empire in the Late Nineteenth Century) from Farsi to Turkish. It will be published in 2022 July. (https://kebikecdergi.org )
+ Internship
+- TUIC (Turkey International Relations Studies) Academy: Feminism Studies - Published: https://www.youtube.com/watch?v=4HDqqpqrRhM&t=2206s
+WORKSHOPS AND COURSES
+Istanbul Technical University (ITU) & Mindset Institute
+Apr. 2021 – May 2021
+May-July 2022
+  -Big Data and Business Analytics (Certification of Specialization): The aim of this program is to provide participants with knowledge and skills on how big data should be processed in a way that will enable optimal decision-making, increase efficiency and reduce costs.
+Udacity
+- Introduction to Python Programming - Java Programming Basics
+Transparency International Turkey
+- Attended to Digital Transparency Summer School.
+- Description: We discussed the concepts of transparency, accountability, and participation with their projections in
+different fields and disciplines. In this good governance school focused on anti-corruption; we had the opportunity to attend training seminars on ethics, political finance, investigative journalism, fight against corruption in the private sector, compliance policies and basic data education.
+Bianet Fundamental Journalism Workshop
+- In this workshop, I learned:
+- What the news is and how it is written,
+- How the editorial processes are,
+- What right-based journalism is, how it is done, and the examples,
+- What gender and peace-oriented journalism are and how they are done, - What new media and new generation news formats are,
+- How to use digital/ interactive tools for journalism.
+Konrad Adenauer Stiftung Turkey
+- European Union Education Certification
+Dec. 2020
+Nov. 2020
+Smyrna Business and Professional Women Association (Smyrna İş ve Meslek Sahibi Kadınlar Derneği) - Career Amazon Project Feb. 2019
+- Description: SİMKAD is a non-governmental organization that has been serving to women since 2012. By the Career Amazon Project, SİMKAD aims to increase women's employment and gender equality.
+- Certification: Office Management (Given By: SİMKAD CEO Serpil Gencer) LANGUAGE SKILLS
+- Turkish (Native / Bilingual Proficiency)
+- Farsi (Native / Bilingual Proficiency)
+- English: Full Professional Proficiency (IELTS Score: 7.0) - Spanish: Elementary Proficiency
+March 2022
+Sept. 2021
+ Aysa Ersöz
