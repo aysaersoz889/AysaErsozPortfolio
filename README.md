@@ -59,3 +59,4 @@ In this workshop, I learned:
 - Farsi (Native / Bilingual Proficiency)
 - English: Full Professional Proficiency **IELTS Score: 7.0** 
 - Spanish: Elementary Proficiency
+#
