@@ -1,2 +1,0 @@
-# AysaPortfolio
-My latest resume
