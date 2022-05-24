@@ -36,7 +36,8 @@ TUIC (Turkey International Relations Studies) Academy: Feminism Studies - Publis
 ### Istanbul Technical University (ITU) & Mindset Institute
 - Big Data and Business Analytics (Certification of Specialization): The aim of this program is to provide participants with knowledge and skills on how big data should be processed in a way that will enable optimal decision-making, increase efficiency and reduce costs.
 ### Udacity
-- Introduction to Python Programming - Java Programming Basics
+- Introduction to Python Programming 
+- Java Programming Basics
 ### Transparency International Turkey
 - Attended to Digital Transparency Summer School.
 - Description: We discussed the concepts of transparency, accountability, and participation with their projections in
